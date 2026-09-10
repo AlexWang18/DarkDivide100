@@ -4,6 +4,7 @@ I'm hoping this helps out future runners as there a criminally low amount of rac
 
 ## Context
 - 25M, started running in 2021 from soccer / hiking background.
+- Ran 2026 Dark Divide in 21:44:15 
 
 I was signed up for the Dark Divide 100 in 2025 by using the Trail Mix fund to cover my entry fee (see https://trailmixfund.org/) but unfortunately caught COVID the week of the race so I had to drop out. Luckily the RD Sean is an all time good guy and he let me transfer my entry to 2026. I didn't race much for the rest of 2025 as it was my A race and I opted to do a C2C Wonderland attempt instead (where I DNFd at mile 60 - still with COVID lungs).
 
@@ -30,9 +31,20 @@ I feel like I'm rambling in this training section but this truly was the best pa
 
 
 ## Pre Race
+- I kept the 4 days before the race pretty lowkey but still was bike commuting and doing short < 40 minute shakeouts. I did one last fun run at Tiger with Alex and Gabe 6 days before (15 miles 4k vert). Made sure to sleep a lot going into the race. I think I slept 9.5 hours Wednesday->Thursday. 
+- I rode out with Sean Thursday afternoon. We stopped at Walmart for a stopwatch for Sean and than at Roxy's Roadhouse for pre race dinner. I also shot some pool with the local shooters Justin (owner's son), Clyde (71 years old), and Tony (70 years old). You gotta play pool pre race to get your mind right. Won the last game with a nice bank shot on the 8 into the middle bag. Walked out after. 
+- Did typical pre race things once there: set up my tent, organized two drop bags, played some hackysack, race meeting, and tried to rest.
+  
 
 ## Race
+I woke up at 4am ready to go after a fitful 6 hours of sleep the night before. I last minute changed a drop bag and ate a banana and a bagel. I tried my best to use the restroom 5 minutes before the start which gave me a bit of anxiety. Sean the RD counted us down from 420 to 69 to set go and than we were off. I went out with the front pack as we started on the road but dropped back a bit as soon as we got on the trail and started climbing. I knew that there would be folks taking it out fast and made sure to keep the speed in check. I soon found myself leading the conga line of headlamps along with Kyle Moss. We had some good chats and realized that we had quite a few mutuals in the Rocky Mountain Runners since he ran with them. It was good to reminisce on my one Boulder summer and all the good connections I had made out there. I remember remarking with Kyle about the runners that went out hot and that "the race doesn't start till mile 70". I think at this point of the race we were sitting somewhere outside the top 5 10 miles in. There was a small descent and than we begun another big climb. 
+
+I somehow got split from the group sometime during the road climb and I started running with Lauren from BC. I was feeling good on the road still so me and Lauren cruised up ahead of the rest of the conga line.
 
 ## Aftermath
+
+## People i owe
+thank u to all the friends i got to run with this summer
+off the top of my head gabe worthington, alex weidman, ross mitchell, CTB, john cho, all the CNW friends
 
 ## What's next
