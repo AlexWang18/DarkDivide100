@@ -20,11 +20,14 @@ I usually only did a single intensity session per week which more often than not
 
 I had 81 hours of activity in June, 123 hours in July and 89 in August. 
 
-I feel like I'm rambling in this training section but this truly was the best part of my summer. When the adults say its about the journey not the destination they might actually be right. So I just want to highlight a few of my marquee adventures this summer which could be considered "key sessions" but were moreso just fun trips to the mountains. M
-- June 19-21st bike across the Olympic Peninsula + High Divide loop
-- July 4th weekend: bike to Squamish, run from Garibaldi Lake to Whistler, train back from Vancouver
-- Mountain loop highway to pilot ridge white pass loop 
-- Seqium Soldiers
+I feel like I'm rambling in this training section but this truly was the best part of my summer. When the adults say its about the journey not the destination they might actually be right. So I just want to highlight a few of my marquee adventures this summer which could be considered "key sessions" but were moreso just fun trips to the mountains. 
+- June 18-20th [bike across the Olympic Peninsula](https://www.strava.com/activities/19004789598) + [High Divide loop](https://www.strava.com/activities/18991375839). 220 miles cycling, 24 miles running. Public transit all the way to First Beach from Seattle. 
+- July 4th weekend: bike from [Seattle to Bellingham](https://www.strava.com/activities/19169030791), [Bham to Garibaldi Lake TH](https://www.strava.com/activities/19184008208), [run from Garibaldi Lake to Whistler](https://www.strava.com/activities/19201749780), hitch back to my bike, [bike back to Vancouver via Squamish](https://www.strava.com/activities/19204841712), train back from Vancouver. 300 miles cycling, 42 miles 11k vert running. 
+- July 17th-July 18th: Bike the Mountain Loop highway to Pilot Ridge White Pass loop. bussed to Arlington from Seattle, [biked to N Fork Sauk TH](https://www.strava.com/activities/19370277022), camped out, ran [Pilot Ridge](https://www.strava.com/activities/19370362835) sub 6 hours, [bike back to Arlington via Whitehorse](https://www.strava.com/activities/19370286245). Door to door in 30 hours with 120 miles of cycling and 30 miles of running. This is an excellent 1.5 day trip. I left Friday afternoon and was back home Saturday evening.
+- July 25th: [White River 50k](https://www.strava.com/activities/19463710052). Sean outkicked me at the end for first place but a really fun and controlled effort! We all signed up the day before haha. Shoutout to Trail Mix fund!
+- July 31st-Aug 1st: [Overtime 24 hour relay](https://www.strava.com/activities/19554625908). Only me and Melo on a team so I just ran a bunch of laps overnight. Won the most individual laps. 51 miles in 6hr 47. Did Dead Baby Downhill the same day...
+- Aug 7th-Aug 9th: Public transit to Seqium, [bike up to Deer Ridge](https://www.strava.com/activities/19662577588), [ran a shorter version of Grand Loop](https://www.strava.com/activities/19662577913), bike down to Dungeness Spit, camp out, [bike back home](https://www.strava.com/activities/19674101233). 105 miles cycling, 35 miles running. 
+
 
 ## Pre Race
 
