@@ -52,16 +52,26 @@ I soon found myself leading the conga line of headlamps along with Kyle Moss. We
 
 I somehow got split from the rest of the group sometime during the road climb and I started running with Lauren from BC, making steady work on the road. I was feeling good on the road still so me and Lauren cruised up ahead of the rest of the conga line. This was both our first 100 mile race so we both joked that this was the beginning of the end for us as we moved efficiently up the road climb. It soon turned back to trails and I could start to see some head lamps ahead of us on the climb to come. They definitely were moving a lot slower now already 10 miles in on the steep climb. It also was finally starting to get light out and I was able to I was feeling good so I passed the two of them and dropped Lauren on the steeps. It seemed that everyone else had poles but I was feeling fine so far with the hands on knees method. Looking back I might've gotten overzealous on the effort here but I don't think my HR spiked at all and it still felt very very controlled. I brought a pop tart, jumbo honey bun, and two 40mg caff gels for this first section and ate most in the first 12 miles except for a single gel. 
 
-I think we passed the first aid station (Juniper) after a small descent from the top of the climb to Tongue Mountain and I grabbed 3 more gels from this aid. Very short pit stop and I kept cruising along. Most of the aid stations followed a pattern of descent to the aid and than climb back out. So like clockwork we were climbing back up the ridge towards Sunrise Peak.
+I think we passed the first aid station (Juniper) after a small descent from the top of the climb to Tongue Mountain and I grabbed 3 more gels and maybe an oreo before leaving. Very short pit stop and I kept cruising along. Most of the aid stations followed a pattern of descent to the aid and than climb back out. So like clockwork we were cruising along the ridge towards Sunrise Peak. This was one of the prettiest sections of the race and the fall foliage was starting to pop out. It was a short OAB climb up to Sunrise where there was a race photographer and where I saw the race leaders. I saw second place ahead along the ridge and 3rd place Nick Stenger descending Sunrise as I was climbing up. They were both 5ish minutes ahead. I repressed the urge to try and urge and kept things in check knowing that they would come back. 
+
+It was a short descent from Sunrise Peak down to Sunrise aid where I again grabbed a couple gels before heading out on the nice 5 mile road downhill to Dark Road. I kept the road extremely chill once again just doing 8:30 miles. It started to rain at this section which was a bummer since it was exposed. I was anxious about having rain all week since I knew moisture is a big enemy of the plantar wart (makes it all tender and hurt more). Regardless, I got down to Dark Creek knowing it was a key section of the race where it was something like 15 miles until the next aid station. So I grabbed maybe 4 gels and than I still had 2 gels from last aid for a grand total of 6 gels. This was only like 600 calories for what was 3 hours. Definitely unideal fueling but you live and learn. The next section was the longest aid-less section but had some fast flowy miles
+
+## Things I could've done better
+- I ran out of food multiple times at the start of the race since I was skimping out on grabbing enough gels. I really underestimated the distance between aid stations (whoops I didn't really study the course at all). I was only grabbing 3 gels at each aid station bc I had heard in past years that aid stations ran out of food so I didn't want to be too selfish. Realizing now I could've grabbed a couple more at each and fueled a bit better. I was probably only hitting 200 calories an hour even though my stomach could handle much much more.
+- I could've honestly been more prepared and drop bagged better so that I had reliable fuel at each aid station anyways
+- Don't fall apart at night
+- Keep racing through the night. 
+- Being confident in the night
 
 ## Gear Notes
 - Carried rain jacket and head lamp the whole way. Never used the rain jacket
 - 
 
 ## Aftermath
+- I was able to run 4 miles and ride 20 miles Sunday. Feet were the worst off but legs felt fine. Lowkey wished I raced harder but also pumped to get back into another hard training block for the Philly Marathon!
 
 ## People i owe
 thank u to all the friends i got to run with this summer
-off the top of my head gabe worthington, alex weidman, ross mitchell, CTB, john cho, all the CNW friends
+off the top of my head gabe worthington, alex weidman, ross mitchell, CTB, john cho, all the CNW friends, 
 
 ## What's next
