@@ -44,6 +44,7 @@ I feel like I'm rambling in this training section but this truly was the best pa
 - Did typical pre race things once there: set up my tent, organized two drop bags, played some hackysack, race meeting, and tried to rest. 
 - Met up with Lita (Sean's crew) and Daryn and Nick (CNW guys) once there. Sean the RD had an inspiring pre race speech. Some brief chats with them before heading off to the tent.
 - I wanted to last minute study the course more but I fell asleep too fast.
+- I was Bib 42 which gave me a good chuckle since it is the answer to the question "what is the meaning of life" in Hitchhikers Guide To The Galaxy. Not as auspicious as 88 earlier this year though.
   
 ## Environmental Variables
 - 45F, 85% humidity at race start. 60 degrees and cloudy mostly. A few rain showers throughout the day.
