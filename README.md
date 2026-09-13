@@ -9,8 +9,8 @@ My goal in writing this is that it will help me emotionally process this race an
 I was signed up for the Dark Divide 100 in 2025 by using the Trail Mix fund to cover my entry fee (see https://trailmixfund.org/) but unfortunately caught COVID the week of the race so I had to drop out. This was the first race I used the fund for. Luckily the RD Sean is an all time good guy and he let me transfer my entry to 2026. I didn't race much for the rest of 2025 as Dark Divide was supposed to be my A race. I ended up opting to do a C2C Wonderland attempt instead with Oliver Accola (where I DNFd at mile 60 - still with COVID lungs a week later). Oliver however was successful in a sub 24 c2c (and than a Glacier Peak Circumnavigation the weekend after!)
 
 2026 running wise for me had started pretty poorly as I got the flu right before Deception Pass 50k (missing another race to sickness!) and broke my collarbone in February which sidelined me for 2 months (missed Chuckanut 50k!!). So I effectively missed running 3 races in a row whether due to randomly getting sick and falling off my bike in a very uncool way. I had honestly written this whole year off in terms of racing because I wasn't sure if I was gonna have any weird complications from my collarbone surgery in February. It was my first surgery ever and my first broken bone as an adult. Luckily I healed pretty fast and I was back to running with some regularity by April. Still I got really out of shape in the 2 months I was sidelined in a sling so it felt like April, May, and June were just claw back and getting back to speed months. I was a bit scared going in to have such a hard course for my first 100 miler given my year.
-<img width="585" height="1266" alt="IMG_7321" src="https://github.com/user-attachments/assets/a34628b6-9e19-4e61-8e1d-eecab549cae9" />
-
+<img width="437" height="631" alt="image" src="https://github.com/user-attachments/assets/fbfb84be-baa5-4da1-92c8-8d0f26dfead6" />
+- My separated left clavicle. My last time riding a fixed gear..
 
 
 ## Training
@@ -42,16 +42,18 @@ I feel like I'm rambling in this training section but this truly was the best pa
 - The week before in general I tried to keep things low stress. I helped my buddy move houses on the Monday before but besides that it was mostly just work, eat, shakeout, and sit on the couch. I knew that I was getting ready as I felt a bit mentally sharper at work and I was shooting good at pool Tuesday night.
 - My mentality going into the race was fuck it whatever happens, happens. I was extremely anxious about my plantar wart causing me grief as I had gotten it frozen by the doc 2.5 weeks before race day but it was still there. I also had no idea really what I was getting into as there isn't much on the Dark Divide race on the internet beside the fact that it is extremely challenging. This was my first 100 miler and I think going in with very loose expectations removed a lot of potential pre race anxiety I would've had if I set out ABC goals for myself. I loosely hoped I could go sub 24, but also knew the course record was 26.5 hours and wanted to respect that so I kept that aspiration in check and instead set out in my mind just to finish.
 - I rode out with Sean Dew Thursday afternoon. We stopped at Walmart for a stopwatch for Sean and than at Roxy's Roadhouse for pre race dinner. I shot a couple games of pool with the local shooters Justin (owner's son), Clyde (71 years old), and Tony (70 years old). I had asked Clyde if he had any advice for a young buck and he simply replied "Don't stop going hard". What a guy. Playing pool pre race gets your mind right. Won the last game with a nice bank shot with inside spin (avoid double kiss) on the 8 into the middle bag to win. An excellent final shot. Walked out out right after. I was feeling ready.
-    - Thanks to Sean for driving us out and waiting for me when playing pool. 
+    - Thanks to Sean for driving us out and waiting for me when playing pool.
+<img width="1051" height="737" alt="image" src="https://github.com/user-attachments/assets/960c2b87-b768-4c28-a518-a870ce7fd23e" />
+
+  
 - Me and Sean also briefly chatted to two other racers at the roadhouse who gave us some news that the trails were in better shape this year (one of them had paced Bigfoot 200)
 - Did typical pre race things once there: set up my tent, organized two drop bags, played some hackysack, race meeting, and tried to rest. 
 - Met up with Lita (Sean's crew) and Daryn and Nick (CNW guys) once there. Sean the RD had an inspiring pre race speech. Some brief chats with them before heading off to the tent.
 - I wanted to last minute study the course more but I fell asleep too fast.
 - I was Bib 42 which gave me a good chuckle since it is the answer to the question "what is the meaning of life" in Hitchhikers Guide To The Galaxy. Not as auspicious as the bib 88 and bib 8 I got earlier this year though.
-<img width="1280" height="960" alt="245C28A5-6465-45EF-9A76-908DFD110F4E" src="https://github.com/user-attachments/assets/885e8308-b42e-4483-88fe-83298d78195e" />
-- shootin' pool with Clyde and Tony at Roxy's
+
 <img width="585" height="766" alt="72817D0F-C5FA-4BF5-B6A6-418446457027" src="https://github.com/user-attachments/assets/b3a69e87-13d4-4191-9b7c-c899e1fac5dd" />
-- Club Northwesters 
+- Club Northwesters after pre race meeting
 
   
 ## Environmental Variables
@@ -82,7 +84,7 @@ The next section to Wright Meadows was another 13 miles which again was a lot lo
 It was bunch of rollers back up Snagtooth into a huge downhill to Wright Meadow Aid station. Saw another race photographer at Blue Lake here which was nice to see. I asked her how much further it was to the aid station and she said 4 miles to which I replied "Well fuck I'm out of food". I was half hoping she had some on her to give. Did really bad at planning the calories this race. Luckily most of the 4 miles turned into a nice forest road shortly after so it was faster moving than expected. I was excited to see my de facto crew and later on pacer Alex Weidman at this aid. I remember thinking damn he's got that shit on. He was wearing these cool army camo pants and that brown Melly knockoff he wears. He tried to offer me some of his fancy gels but I declined knowing how expensive they were and told him I only had 8 miles to the next aid station anyways. I did ask him to re tie my right shoe which had gotten loose from the wet and causing me to feel less confident on the downhill. I quickly scarfed down a mysteriouslyblue pancake and than some bacon which tasted really really really good. I wish I carried some of the bacon out. Instead I just grabbed more gels and got some electrolyte water. To my surprise both Adam and Kyle were only 30 seconds back on the road which I never turned around to see. This put me in fight or flight so I left the aid station a bit quicker than I probably should've. I wanted to ask Weidman to meet me at the 61 aid station too, though I wasn't sure if it was crew accessible and forgot to mention it to him in my frenzy. 
 
 <img width="1045" height="763" alt="47FBB7C8-A4CE-4994-919C-FA9921F0409C" src="https://github.com/user-attachments/assets/cd5defca-355b-49a1-a254-65164cd547c5" />
-- Blue Lake right before Wright Meadow Aid 
+- Blue Lake right before Wright Meadow Aid. Ran out of food.  
 
 
 It was a technical steep descent from Wright Meadows which made me thankful for tightening up my right shoe. I felt like I was descending at a decent clip until Kyle came hot on my tail. You can tell he's a Boulder ripper. I later learned he has the second fastest time down Green Mountain. Damn. He passed me a couple miles out of the aid station and I didn't want to both blow my quads or my ankles trying to keep up with him downhill. In retrospect I probably should've, but I was running scared for my ankles since I rolled my bad one racing White River 50k earlier this summer. So I let him go, hoping I would catch up on the big climb up to Summit Prairie where I would than pick up Weidman as a pacer. It was pretty much all steep downhill to the Lewis River aid station. I think I was only 2 minutes back by the time I was running into the aid and he was running out. I lowkey did not know the aid stations at this part of the course but was happy that it no longer was 12+ mile stretches between aids. Quickly refilled fuel here and chased out after Kyle. I saw Adam moving a bit slower 5 minutes back climbing to the aid here and guessed that I probably didn't need to worry about him. 
@@ -90,8 +92,7 @@ It was a technical steep descent from Wright Meadows which made me thankful for 
 The next section of the race was really confusing to me from Lewis River to Quartz Butte as I did not really ever pay attention to this section before the race. In my mind I thought I was gonna be starting the big Summit Prairie climb at any second now but in reality I had like 9 miles of rollers to get through. My watch topo map was playing tricks on me as it seemed like I was finally getting to start of the base of the climb for 2 hours straight . The climbs here weren't steep and it was rolling runnable trail but I just couldn't get myself to move well. I think my underfueling was starting to catch up to me and my feet were still wet, so every step was tender and a little painful. I was hoping to listen to music during part of the race but I accidentally locked myself out of my phone for 5 hours at the Lewis River AS (was butt dialing the wrong password all day, even with my phone in a ziplock!) so I couldn't access music nor maps. There was a very nice view of the Lewis Falls here though which I marveled at if only for a fleeting moment. I made my first major navigational blunder in this section at Straight Creek. It was pretty straight forward creek crossing but for some reason I thought I had to go upstream up a bunch of blowdowns when the trail was simply right were I started. I tried to orient myself with the watch but it just led me further up the blowdowns. I wasted a couple minutes here playing Tarzan before finding the trail again. Annoying but not the end of the world. I was miffed that if I could've used my phone than I would've oriented myself faster but I digress. 
 
 <img width="585" height="605" alt="35B8179F-178D-4A90-A943-0CFD45BA1C88" src="https://github.com/user-attachments/assets/b212c5b7-89ec-488f-99ac-12fb51a5ff85" />
-- somewhere along the Lewis River
-
+- somewhere along the Lewis River. I look sad.  
 
 I was still very confused on the next aid station and was surprised when I pulled up to Quartz Butte Aid. I surely thought the next one was Summit Prairie. But I was thankful this mystery aid was there since I had ran out of food and water. I still don't really know what happened in this section. I just kinda faded away on the rollers even though it was all runnable. I think the expectation of treating myself with some music to stim to and than not being able to listen because of a phone lockout kinda bummed me out. Even so I had Weidman to look forward to at Summit Prairie so I needed to press on. I thought about Peggy fighting malaria which gave me some strength to push on. She inspires me. I wanted to do well for her and my Mom. 
 
@@ -122,9 +123,18 @@ It was nice to see all the Cowgill folks (Clayton, Gabe, Matt, Lita) that were b
 
 I don't really remember much from those 27 miles at night besides a few short conversations and seeing a couple rabbits. But I am infinitely blessed to have such a good friend Alex Weidman to accompany me for it. Weidman believed in my own abilities more than I did myself. I owe him a lot. We drove back later that morning to Seattle and I was back home before noon on Saturday. I laid in bed all day. I called my mom.
 
-## Stats
+## Stats 
+102.86 miles, 28,273 ft gained/lost (these are watch stats with it on extended power mode so may be slightly inaccurate)
+12:41 min/mi avg pace -- 12:21 min/mi moving pace. 
+Average HR: 132 bpm. Max HR: 183 bpm
+Elapsed time: 21:44:09 
+Moving time: 21:09:39
+Run time: 17:21:47
+Walk time: 4:00:17
+Total calories burned: 12,990
+
 ### Aid Station Splits
-... + food
+... + food consumed 
 
 
 ---
