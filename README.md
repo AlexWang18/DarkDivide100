@@ -101,8 +101,7 @@ It started getting pretty dark in the forest and I was really glad to still been
 I saw a great view of Mt Adams in the evening dusk near the top of the climb though which felt pretty special. How lucky I am to see such pretty things. But was not my internal monologue than. I was just frogging it in waiting to pick up Weidman. It was a couple miles of downhill in the dark till I got to Summit Prairie. It felt way further than I expected since I was uneducated and unprepared, a shame. I saw Kyle's headlamp storming up hill from the aid station as I was running down. He was probably 5 minutes ahead of me at this point. But I kind of instantly relegated it in mind that it was sort of over. I got into the aid and finally had my first sit down all race. I had to take care of myself first before trying to catch up. I was depleted severely on calories and instantly started cramping in the camp chair. I got PTSD when I locked up from electrolyte imbalance and muscle weakness on my LHHT YOYO attempt 3 years prior. I had Cole T Bishop pace me back than. I am the byproduct of all my previous experiences.
 
 Luckily Weidman had Gatorade on hand and I was able to delete the cool blue sugars and restore whatever salt sweat imbalance I had. Some volunteer cooked me a quesadilla in the time I was sitting there and I ate it with joy. It was my first real food since Wright Meadow. It went down much easier than the PBJ. I sat so long I was starting to shiver. But I needed to fix my feet. My only solution being changing shoes and socks. My feet were looking trenchy. About as a bad as they did when I got trench foot in NorCal on the PCT. Weidman graciously carried me through all of this, I can't believe I was going to reject his help because I didn't want to inconvenience anyone in my own twisted suffering fate type of way. It was dark and I was shellshocked sitting there. I was basically useless besides my ability to use myself as a vessel to walk and run from all my problems and insecurities. He tied my shoes and changed my shirt and made sure I carried enough calories because he knew I wasn't getting as much as I should. I just sat there and trying to eat back my calories and mentally get ready for the night shift. I bought a waist light the week before the race and this was my first time using it. Nothing new on race day the adults say. I think I finally left that aid station after 10-15 minutes of sitting there dazed. I could've mobilized faster.
-<img width="720" height="1280" alt="73BE6B94-9073-4F37-BB35-AB1277EC06EB_1_102_o" src="https://github.com/user-attachments/assets/078d9979-aa97-4bbc-998a-be7e2e7ae7f9" />
-
+<img width="378" height="578" alt="image" src="https://github.com/user-attachments/assets/c6e00b7d-5eda-4317-9436-1dd5347f3573" />
 
 I felt like the race was over as I made my way out of the aid station. I forget if I ever verbalized this to Weidman, but I'm almost certain I did. I remember he still had the belief in me catching up. But I myself had already reserved myself to fighting for second place and lost my will to catch Kyle now that he was likely 20 minutes ahead. My feet were better but still hurt, the plantar wart especially. The callus having grown quite a bit from being soggy all day. Very clumsily, I got my feet soaked again in a puddle not even 5 miles out from the aid station in my dry new shoes. This upset me dearly. I walked in front of Weidman because I did not want him to lead and push me. I was tired and I just wanted to jog it in. I came up with reasons to defend my fragile ego. I lied to myself saying if I hiked now maybe I would have the legs to run sub 6 minute miles on the final 9 mile road. My mind was constantly thinking of the finish instead of the present moment. My mom told me "peace every step" but I was starting to forget that simple mantra.
 
@@ -114,23 +113,23 @@ Reminder to self it is hard to run 100 miles and an accomplishment. I started ge
 
 I felt like I was sprinting as I returned back to Cispus Learning Center. In theme with my day, I went the wrong way on the final straightaway and had to hook back awkwardly to the finish line. Relief. It was over. 2nd place overall in 21:44:15. I didn't see Kyle at the finish but I was stoked for him. He ran the better (and smarter) race. Gratitude for my debut 100 going so well. I chatted with Sean the RD and the folks at the finish line for a bit but it all felt like a fever dream. From pictures at the end it looked like my skin looked very soft as if I came out of DongBei Spa treatment. I thought about my family back in China. 
 
-<img width="965" height="1280" alt="D9F11635-BF66-4C28-8487-BE758080C1B5" src="https://github.com/user-attachments/assets/70eff286-96c7-4626-8912-1453bc6e16ce" />
-
-<img width="739" height="945" alt="FCDD55A5-1186-4230-ABD9-4F16926B6CD7_1_201_a" src="https://github.com/user-attachments/assets/e826df02-e1f9-4b98-969d-c4327710c72a" />
+<img width="502" height="583" alt="image" src="https://github.com/user-attachments/assets/90749ac2-eabb-4b51-9a85-54523c04d753" />
 
 It was nice to see all the Cowgill folks (Clayton, Gabe, Matt, Lita) that were back at the finish. I was actually fantasizing about laying down in my by now soaked 1 person trekking pole tent all night but learned that there were bunk beds that we could nap on. I took a shower and tried to rest. According to Clayton my feet looked ghastly, they certainly felt as such. I was struggling to breathe. For the next hour laying there I felt like I had to fight for each breath. I was so cold yet warm at the same time. I didn't want to drink my cold water because I knew it would make me feel the chill even more. But my throat was so dry. I kept coughing in a very bad type of way. The past 21 hours was catching up with me. I felt bad for Gabe and Clayton trying to sleep. But felt even more bad for Matt and Weidman who went to go fetch Weidman's car 2 hours away via dirt road in the middle of the night so that we could drive back in a couple of hours. 
 
 I don't really remember much from those 27 miles at night besides a few short conversations and seeing a couple rabbits. But I am infinitely blessed to have such a good friend Alex Weidman to accompany me for it. Weidman believed in my own abilities more than I did myself. I owe him a lot. We drove back later that morning to Seattle and I was back home before noon on Saturday. I laid in bed all day. I called my mom.
 
 ## Stats 
-102.86 miles, 28,273 ft gained/lost (these are watch stats with it on extended power mode so may be slightly inaccurate)
-12:41 min/mi avg pace -- 12:21 min/mi moving pace. 
-Average HR: 132 bpm. Max HR: 183 bpm
-Elapsed time: 21:44:09 
-Moving time: 21:09:39
-Run time: 17:21:47
-Walk time: 4:00:17
-Total calories burned: 12,990
+- 102.86 miles, 28,273 ft gained/lost (these are watch stats with it on extended power mode so may be slightly inaccurate)
+- 12:41 min/mi avg pace -- 12:21 min/mi moving pace. 
+- Average HR: 132 bpm. Max HR: 183 bpm
+- Elapsed time: 21:44:09 
+- Moving time: 21:09:39
+- Run time: 17:21:47
+- Walk time: 4:00:17
+- Total calories burned: 12,990
+
+<img width="739" height="945" alt="FCDD55A5-1186-4230-ABD9-4F16926B6CD7_1_201_a" src="https://github.com/user-attachments/assets/e826df02-e1f9-4b98-969d-c4327710c72a" />
 
 ### Aid Station Splits
 ... + food consumed 
