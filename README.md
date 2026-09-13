@@ -1,4 +1,4 @@
-     # 2026 Dark Divide 100 Race Report
+# 2026 Dark Divide 100 Race Report
 
 My goal in writing this is that it will help me emotionally process this race and understand my subsequent thoughts as well learn from my many mistakes for future endeavors. I also want to revisit and reflect on my relationship with ultrarunning as this is my 5 year anniversary of consistently running. I'm hoping this also helps out future runners as there a criminally low amount of race reports for this race on the internet and the Dark Divide Roadless Area in general being a very scantly trafficked recreation area. Apologies in advance if this is overly self-indulgent, verbose, or boring, but hopefully it is still somewhat interesting and inspires others to get out there. I am known to be a yapper.
 
