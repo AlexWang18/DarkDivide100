@@ -42,7 +42,7 @@ I feel like I'm rambling in this training section but this truly was the best pa
 ## Pre-Race
 - I kept the 4 days before the race pretty lowkey but still was bike commuting and doing short < 40 minute shakeouts. I did one last fun run at Tiger with Alex and Gabe 6 days before (15 miles 4k vert). Maybe did too much to actually taper optimally but you gotta take advantage of summer living! Made sure to sleep a lot going into the race. I think I slept 9.5 hours Wednesday->Thursday. 
 - The week before in general I tried to keep things low stress. I helped my buddy John move houses on the Monday before but besides that it was mostly just work, eat, shakeout, and sit on the couch. I knew that I was getting ready as I felt a bit mentally sharper at work and I was shooting good at pool Tuesday night.
-- My mentality going into the race was fuck it whatever happens, happens. I was extremely anxious about my plantar wart causing me grief as I had gotten it frozen by the doc 2.5 weeks before race day but it was still there. I also had no idea really what I was getting into as there isn't much on the Dark Divide race on the internet beside the fact that it is extremely challenging. This was my first 100 miler and I think going in with very loose expectations removed a lot of potential pre-race anxiety I would've had if I set out specific ABC goals for myself. I loosely hoped I could go sub 24, but also knew the course record was 26.5 hours and wanted to respect that so I kept that aspiration in check and instead set out in my mind just to finish. I did a lot of hedging of bets and downplaying my expectations when asked about the race by others since I truly did not know how I would actually do. 
+- My mentality going into the race was fuck it whatever happens, happens. I was extremely anxious about my plantar wart causing me grief as I had gotten it frozen by the doc 2.5 weeks before race day but it was still there. I also had no idea really what I was getting into as there isn't much on the Dark Divide race on the internet beside the fact that it is extremely challenging. This was my first 100 miler and I think going in with very loose expectations removed a lot of potential pre-race anxiety I would've had if I set out specific ABC goals for myself. I loosely hoped I could go sub 24, but also knew the course record was 26.5 hours and wanted to respect that so I kept that aspiration in check and instead set out in my mind just to finish. I did a lot of hedging of bets and downplaying my expectations when asked about the race by others since I truly did not know how I would actually do. I was honestly worried about a mid-race blow up since my body has only ran the 50+ mile distance a handful of times. 
 - I rode out with Sean Dew Thursday afternoon. We stopped at Walmart for a Casio for Sean (he does not use a smart watch) and than at Roxy's Roadhouse for pre-race dinner. I got the Big Bottom Burger. I shot a couple games of pool with the local shooters Justin (owner's son), Clyde (71 years old), and Tony (70 years old). I had asked Clyde if he had any advice for a young buck and he simply replied "Don't stop going hard". What a guy. Playing pool pre-race gets your mind right. Won the last game with a nice bank shot with inside spin (avoid double kiss) on the 8 into the middle bag to win. An excellent final shot. Walked out out right after. I was feeling ready.
     - Thanks to Sean for driving us out and waiting for me when playing pool.
 <img width="1051" height="737" alt="image" src="https://github.com/user-attachments/assets/960c2b87-b768-4c28-a518-a870ce7fd23e" />
@@ -127,7 +127,8 @@ I don't really remember much from those 27 miles at night besides a few short co
 
 ## Stats 
 - 102.86 miles, 28,273 ft gained/lost (these are watch stats with it on extended power mode so may be slightly inaccurate)
-- 12:41 min/mi avg pace -- 12:21 min/mi moving pace. 
+- 12:41 min/mi avg pace -- 12:21 min/mi moving pace.
+    - I split the halfway point at 10 hours 40 minutes meaning I did the back half in 11 hours which is only a +20 minute positive split. But the second half is net downhill and has ~3k less climbing than the first half so my pace fall off is a bit bigger than what +20 minute would indicate.
 - Average HR: 132 bpm. Max HR: 183 bpm
 - Elapsed time: 21:44:09 
 - Moving time: 21:09:39
@@ -136,10 +137,6 @@ I don't really remember much from those 27 miles at night besides a few short co
 - Total calories burned: 12,990
 
 <img width="739" height="945" alt="FCDD55A5-1186-4230-ABD9-4F16926B6CD7_1_201_a" src="https://github.com/user-attachments/assets/e826df02-e1f9-4b98-969d-c4327710c72a" />
-
-### Aid Station Splits
-... + food consumed 
-
 
 ---
 
@@ -155,7 +152,8 @@ I don't really remember much from those 27 miles at night besides a few short co
 - Wore long sleeve North Park half marathon race shirt and half tights. Changed long sleeve shirt to whatever Weidman had at mile 75. minimal chaffage beside early on and fixed with little vaseline.
 - Size 8 shoes felt fine for 75 miles. i normally wear 8.5 but sized half size down for Mafate Speed 4 recently (thank u Cowgill/Aaron for the free demo shoes). Some blisters (in detail I had issues on: bottom and side of left big toe, left pinky toe, inside right big toe, weird swelling on right pointer toe, plantar ward bloating, right pinky toe small blister) but I am guessing this is normal for 20+ hours on feet in wet conditions. 
 - I don't know if you can mess up putting on a waist lamp but I felt like the light was bobbing around and distracting all night. The beam didn't stay in one consistent place which made confidence of footing poor. That's fine though as Weidman luckily brought a spare headlamp that I could use since the one I had from the start died.
-- I should've taken more caffeine at night. I had a small gas station 100mg caffeine chocolate when dusk hit but it probably wasn't enough. Surely more affiance could've helped w the energy but I was half hoping taking less would enable me to sleep better later. 
+- I should've taken more caffeine at night. I had a small gas station 100mg caffeine chocolate when dusk hit but it probably wasn't enough. Surely more affiance could've helped w the energy but I was half hoping taking less would enable me to sleep better later.
+- Wish my phone didn't get locked out so I could've listened to music. I made a playlist specifically for the race named DDDD (iykyk). I now have turned off the "Tap to wake" setting on my phone so it doesn't happen again.
 
 ## Aftermath
 - I am very able grateful to be able to walk away from this race with seemingly no injuries and just normal fatigue
