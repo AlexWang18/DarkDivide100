@@ -158,6 +158,7 @@ I don't really remember much from those 27 miles at night besides a few short co
 - I don't know if you can mess up putting on a waist lamp but I felt like the light was bobbing around and distracting all night. The beam didn't stay in one consistent place which made confidence of footing poor. That's fine though as Weidman luckily brought a spare headlamp that I could use since the one I had from the start died.
 - I should've taken more caffeine at night. I had a small gas station 100mg caffeine chocolate when dusk hit but it probably wasn't enough. Surely more affiance could've helped w the energy but I was half hoping taking less would enable me to sleep better later.
 - Wish my phone didn't get locked out so I could've listened to music. I made a playlist specifically for the race named DDDD (iykyk). I now have turned off the "Tap to wake" setting on my phone so it doesn't happen again.
+- I peed three times, once at wilderness crossing (mile 39), sometime around Lewis River (mile 60, and sometime at night i dont really remember
 
 ## Aftermath
 - I am very able grateful to be able to walk away from this race with seemingly no injuries and just normal fatigue
