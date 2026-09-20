@@ -121,9 +121,13 @@ It felt like we ripped the descent down to the final aid station motivated by th
 
 Reminder to self it is hard to run 100 miles and an accomplishment. I started getting emotional. I was happy knowing I was gonna finish. It's been a hell of a year. I can't tell if Weidman knew that I was crying for half that descent. I thought about my family and friends. I was thankful for everyone who was in my life. I couldn't believe I had done it after being in a sling in April. Plantar wart be damned. In fact I was overjoyed. Serenity overflowed me as we reached the flat road and the end was in sight. I realized I had no reason to be mad/disappointed/bummed/etc. I went in with no expectations hoping to finish and ended up beat the previous course record by 5 hours. I had not even imagined that I would've ran under 22 hours going into the race, yet I had gone and done it. 
 
+<img width="504" height="337" alt="image" src="https://github.com/user-attachments/assets/e62fad30-d356-4cdd-9188-59737c014cf9" />
+
+
 I felt like I was sprinting as I returned back to Cispus Learning Center. In theme with my day, I went the wrong way on the final straightaway and had to hook back awkwardly to the finish line. Relief. It was over. 2nd place overall in 21:44:15. I didn't see Kyle at the finish but I was stoked for him. He ran the better (and smarter) race. Gratitude for my debut 100 going so well. I chatted with Sean the RD and the folks at the finish line for a bit but it all felt like a fever dream. From pictures at the end it looked like my skin looked very soft as if I came out of DongBei Spa treatment. I thought about my family back in China. 
 
-<img width="502" height="583" alt="image" src="https://github.com/user-attachments/assets/90749ac2-eabb-4b51-9a85-54523c04d753" />
+<img width="1230" height="832" alt="image" src="https://github.com/user-attachments/assets/27dc8e0c-e349-4d0f-9a30-93855d2ae256" />
+
 
 It was nice to see all the Cowgill folks (Clayton, Gabe, Matt, Lita) that were back at the finish. I was actually fantasizing about laying down in my by now soaked 1 person trekking pole tent all night but learned that there were bunk beds that we could nap on. I took a shower and tried to rest. According to Clayton my feet looked ghastly, they certainly felt as such. I was struggling to breathe. For the next hour laying there I felt like I had to fight for each breath. I was so cold yet warm at the same time. I didn't want to drink my cold water because I knew it would make me feel the chill even more. But my throat was so dry. I kept coughing in a very bad type of way. The past 21 hours was catching up with me. I felt bad for Gabe and Clayton trying to sleep. But felt even more bad for Matt and Weidman who went to go fetch Weidman's car 2 hours away via dirt road in the middle of the night so that we could drive back in a couple of hours. 
 
