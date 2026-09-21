@@ -51,9 +51,9 @@ I'm rambling in this training section but this was the best part of my summer. I
   
 - Me and Sean also briefly chatted to two other racers at the roadhouse who gave us some news that the trails were in better shape this year (one of them had paced Bigfoot 200)
 - Did typical pre race things once there: set up my tent, organized two drop bags, played some hackysack, race meeting, and tried to rest. 
-- Met up with Lita (apart of Sean's crew) and Daryn and Nick (CNW guys) once there. Some brief chatting with them before heading off to the tent. Sean the RD had an inspiring pre-race speech as well. I was quite moved and feeling pretty pumped up after that. 
+- Met up with Lita (apart of Sean's crew) and Daryn and Nick (CNW guys) once there. Some brief chatting with them before heading off to the tent. Sean the RD had an inspiring pre-race speech as well. I was quite moved and feeling about as inspired as you can be about running a hard 100 miles after that.
 - I wanted to last minute study the course more but I fell asleep too fast.
-- I was Bib 42 which gave me a good chuckle since it is the answer to the question "what is the meaning of life" in Hitchhikers Guide To The Galaxy. Not as auspicious as the bib 88 and bib 8 I got earlier this year though.
+- I was Bib 42 which gave me a good chuckle since it is the answer to the question "what is the meaning of life" in Hitchhikers Guide To The Galaxy. Not as auspicious as the bib 88 and bib 8 I got earlier this year though but I'll take it.
 
 <img width="585" height="766" alt="72817D0F-C5FA-4BF5-B6A6-418446457027" src="https://github.com/user-attachments/assets/b3a69e87-13d4-4191-9b7c-c899e1fac5dd" />
 - Club Northwesters after pre-race meeting
