@@ -5,7 +5,7 @@ My goal in writing this is that it will help me emotionally process this race an
 ## Context
 - (newly) 25M, started running with some regularity in 2021 from soccer / hiking background. ran one year XC in high school where I was very out of shape and ran nearly DFL at a 5k. **I do not have a great background in running**
 - Ran 2026 Dark Divide 100 in 21:44:15: Strava: https://www.strava.com/activities/20049895765/overview.
-- The Dark Divide 100 is a lollipop-esque course that skirts up and down the jagged rocky ridges that are framed in what I'm coining the "Bermuda Triangle of the PNW" due to its remoteness and geographic position between the 3 major volcanos: Rainier (Tahoma), St Helens (Loo Wit), and Adams (Pahto). The course is advertised as "not a beginner level ultramarathon" with 100.97 miles and 26.5k of climbing 
+- The Dark Divide 100 is a lollipop-esque course that skirts up and down the jagged rocky ridges that are framed in what I'm coining the "Bermuda Triangle of the PNW" due to its remoteness and geographic position between the 3 major volcanos: Rainier (Tahoma), St Helens (Loo Wit), and Adams (Pahto). The course is advertised as "not a beginner level ultramarathon" with 100.97 miles and 26.5k of climbing .
 - Although it is actually is very dark at night here, the region is named after an old-timer gold prospector John Dark (big surprise!). Nonetheless it's an excellent yet challenging race put on by the very passionate Wonderland Running team. 
 - The Dark Divide Roadless Area has been historically protected by the logging industry but is now being stewarded by hikers and bikers alike. I am very grateful to live in a city with proximity to places like this. This was my first time visiting the Dark Divide. 
 
