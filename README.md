@@ -24,7 +24,7 @@ I didn't have any significant hitch hiking missions this summer but instead star
 
 <img width="648" height="564" alt="image" src="https://github.com/user-attachments/assets/914a1255-5d46-4c24-a400-200e0afbed08" />
 
-I averaged ~85-90 miles per week in the 12 weeks before the race with my peak weeks before my taper at 121, 100, and 116 mpw, all with 10k+ gain. I also bike commuted at least 50 miles a week plus whatever biking mileage I had from the weekend bike adventure I schemed up. I also rode a couple of mid week, between work days bikepacking trips with buddies out on the peninsula because why the hell not. 
+I averaged ~85-90 miles per week in the 12 weeks before the race with my peak weeks before my taper at 121, 100, and 116 mpw, all with 10k+ gain. I also bike commuted at least 50 miles a week plus whatever biking mileage I had from the weekend bike adventure I schemed up. I also rode a couple of mid week, between work days bikepacking trips with buddies out on the peninsula because why the hell not. Wednesday lunch runs were also essential for heat acclimation (shoutout SLU bubble runners!)
 
 I usually only did a single intensity session per week which more often than not ended up being track intervals with Club Northwest on Tuesday. I sometimes added a tempo later on the week once deeper into the build which was something like 3-6 miles at MP or hills but I usually was a bit too lax to add on a second workout. 
 
